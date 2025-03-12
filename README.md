@@ -1,4 +1,4 @@
-##Hi, I'm Aditya
+Hi, I'm Aditya
 
 🏫Computer Science Engineering Student at Sikkim Manipal Institute of Technology<br/>
 🎥I'm really good at taking photos and making videos<br/>
